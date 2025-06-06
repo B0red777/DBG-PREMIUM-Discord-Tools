@@ -1,1 +1,3 @@
-# DBG-PREMIUM-Discord-Tools
+# DBG-PREMIUM
+Dm on discord to buy
+(Discord on profile)
